@@ -1,1 +1,1 @@
-![Октокот]([/забраження/октокот%20...png](https://github.com/BoDaReFF/BoDaReFF/blob/main/%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%BD%D1%8F/%D0%BE%D0%BA%D1%82%D0%BE%D0%BA%D0%BE%D1%82%20...png))
+![Октокот](/%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD%D0%BD%D1%8F/%D0%BE%D0%BA%D1%82%D0%BE%D0%BA%D0%BE%D1%82%20...png)
